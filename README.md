@@ -12,7 +12,7 @@
 
 - 🤝 I’m looking for help with **Data Stucture**
 
-- 💬 Ask me about **Gaming,Anime and Astrological Facts**
+- 💬 Ask me about **Gaming, Anime and Astrological Facts**
 
 - 📫 How to reach me **kartik.j.g2003@gmail.com**
 
