@@ -12,11 +12,11 @@
 
 - 🤝 I’m looking for help with **Data Stucture**
 
-- 💬 Ask me about **Gaming and Anime**
+- 💬 Ask me about **Gaming,Anime and Astrological Facts**
 
 - 📫 How to reach me **kartik.j.g2003@gmail.com**
 
-- ⚡ Fun fact : **I live in my own imagination**
+- ⚡ Fun fact : **Sometimes I wish I would have born in Anime**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
