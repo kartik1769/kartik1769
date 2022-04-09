@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Kartik Gathibande</h1>
+<h1 align="center">Hi 👋, I'm Kartik Gathibandhe</h1>
 <h3 align="center">A Passionate CSE Engineering Student</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=kartik1769&label=Profile%20views&color=0e75b6&style=flat" alt="kartik1769" /> </p>
