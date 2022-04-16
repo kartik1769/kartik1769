@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **kartik.j.g2003@gmail.com**
 
-- ⚡ Fun fact : **The Blurred image around your phone is called life**
+- ⚡ Fun fact : **The Blurred image around your phone is called life. **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
